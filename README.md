@@ -2,7 +2,7 @@
 
 A list to keep track of my readings. Currently, accepting donations. 💸
 
-[my goodreads profile] (https://www.goodreads.com/user/show/128036680-francisco-neves)
+[my goodreads profile](https://www.goodreads.com/user/show/128036680-francisco-neves)
 
 ## Reading 😄
 
