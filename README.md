@@ -1,6 +1,6 @@
 # Book-List 📚
 
-A list of my books. Currently, accepting donations. 💸
+A list to keep track of my readings. Currently, accepting donations. 💸
 
 ## Reading 😄
 
