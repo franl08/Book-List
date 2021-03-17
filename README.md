@@ -40,6 +40,8 @@ Junkie - William S. Burroughs
 
 The Origin - Dan Brown
 
+The Da Vinci Code - Dan Brown
+
 Imortal - José Rodrigues dos Santos
 
 Stalker - Lars Kepler
@@ -76,3 +78,6 @@ alma in verso - Variados Autores
 
 Killing Commendatore (vol.1) - Haruki Murakami
 
+Um Lobo nunca Abandona a sua Alacateia - Catarina Fernandes
+
+Amor de Perdição - Camilo Castelo Branco
