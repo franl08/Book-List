@@ -90,6 +90,6 @@ alma in verso - Variados Autores
 
 Killing Commendatore (vol.1) - Haruki Murakami
 
-Um Lobo nunca Abandona a sua Alacateia - Catarina Fernandes
+Um Lobo nunca Abandona a sua Alcateia - Catarina Fernandes
 
 Amor de Perdição - Camilo Castelo Branco
