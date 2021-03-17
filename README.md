@@ -26,6 +26,8 @@ Killing Commendatore (vol.2) - Haruki Murakami
 
 Kafka on the Shore - Haruki Murakami 
 
+On Writing - Stephen King 
+
 Levantado do Chão - José Saramago
 
 O Castelo - Franz Kafka
