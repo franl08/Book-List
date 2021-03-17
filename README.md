@@ -1,6 +1,8 @@
-# Book-List
+# Book-List 📚
 
-## Reading
+A list of my books. Currently, accepting donations. 💸
+
+## Reading 😄
 
 Crime and Punishment - Fyodor Dostoyevsky
 
@@ -14,7 +16,7 @@ The Unbearable Lightness of Being - Milan Kundera
 
 Pulp - Charles Bukowski
 
-## Want to Read
+## Want to Read 😅
 
 If This Is a Man - Primo Levi
 
@@ -34,7 +36,7 @@ O deslumbre de Cecilia Fluss - João Tordo
 
 Livro do Desassossego - Fernando Pessoa
 
-## Read
+## Read 🙃
 
 Junkie - William S. Burroughs
 
