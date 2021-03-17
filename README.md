@@ -30,6 +30,8 @@ Kafka on the Shore - Haruki Murakami
 
 On Writing - Stephen King 
 
+The Enigma of Room 622 - Jöel Dicker
+
 Levantado do Chão - José Saramago
 
 O Castelo - Franz Kafka
