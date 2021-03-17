@@ -2,7 +2,7 @@
 
 A list to keep track of my readings. Currently, accepting donations. 💸
 
-If you want to give me a book you can contact me on Discord (tgvp#0705)! 😅
+If you are crazy and want to feed my addiction giving me a book, you can contact me on Discord (tgvp#0705)! 😅
 
 [My profile at goodreads](https://www.goodreads.com/user/show/128036680-francisco-neves)
 
