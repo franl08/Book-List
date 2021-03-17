@@ -36,6 +36,8 @@ O Castelo - Franz Kafka
 
 Felicidade - João Tordo
 
+Biografia Involuntária dos Amantes - João Tordo
+
 Paraíso segundo Lars D. - João Tordo
 
 O deslumbre de Cecilia Fluss - João Tordo
