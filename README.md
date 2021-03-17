@@ -2,7 +2,7 @@
 
 A list to keep track of my readings. Currently, accepting donations. 💸
 
-If you want to give me a book you can add me on Discord! 😅
+If you want to give me a book you can contact me on Discord! 😅
 
 [My profile at goodreads](https://www.goodreads.com/user/show/128036680-francisco-neves)
 
