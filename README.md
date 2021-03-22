@@ -34,6 +34,10 @@ The Enigma of Room 622 - Jöel Dicker
 
 The Castle - Franz Kafka
 
+Beyond Good and Evil - Friedrich Nietzsche
+
+The Death Of Ivan Ilyich - Leo Tolstoy
+
 Levantado do Chão - José Saramago
 
 Felicidade - João Tordo
