@@ -12,13 +12,13 @@ Crime and Punishment - Fyodor Dostoyevsky
 
 The Savage Detectives - Roberto Bolaño
 
-Filho da Mãe - Hugo Gonçalves
-
 Manual de Sobrevivência de um escritor: ou o pouco que sei sobre aquilo que faço - João Tordo
 
 The Unbearable Lightness of Being - Milan Kundera
 
 Pulp - Charles Bukowski
+
+Livro do Desassossego - Fernando Pessoa
 
 ## Want to Read 😅
 
@@ -44,9 +44,9 @@ Paraíso segundo Lars D. - João Tordo
 
 O deslumbre de Cecilia Fluss - João Tordo
 
-Livro do Desassossego - Fernando Pessoa
-
 ## Read 🙃
+
+Filho da Mãe - Hugo Gonçalves
 
 Junkie - William S. Burroughs
 
