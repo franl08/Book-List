@@ -8,8 +8,6 @@ If you are crazy and want to feed my addiction giving me a book, you can contact
 
 ## Reading 😄
 
-Crime and Punishment - Fyodor Dostoyevsky
-
 The Savage Detectives - Roberto Bolaño
 
 Manual de Sobrevivência de um escritor: ou o pouco que sei sobre aquilo que faço - João Tordo
@@ -49,6 +47,8 @@ Paraíso segundo Lars D. - João Tordo
 O deslumbre de Cecilia Fluss - João Tordo
 
 ## Read 🙃
+
+Crime and Punishment - Fyodor Dostoyevsky
 
 Filho da Mãe - Hugo Gonçalves
 
