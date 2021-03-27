@@ -14,6 +14,8 @@ The Unbearable Lightness of Being - Milan Kundera
 
 Pulp - Charles Bukowski
 
+The Great Gatsby - F. Scott Fitzgerald 
+
 Livro do Desassossego - Fernando Pessoa
 
 ## Want to Read 😅
