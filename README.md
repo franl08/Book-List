@@ -10,8 +10,6 @@ If you are crazy and want to feed my addiction giving me a book, you can contact
 
 The Savage Detectives - Roberto Bolaño
 
-Manual de Sobrevivência de um escritor: ou o pouco que sei sobre aquilo que faço - João Tordo
-
 The Unbearable Lightness of Being - Milan Kundera
 
 Pulp - Charles Bukowski
@@ -75,6 +73,8 @@ Os Maias - Eça de Queirós
 A Cidade e as Serras - Eça de Queirós
 
 Aparição - Vergílio Ferreira
+
+Manual de Sobrevivência de um Escritor: ou o pouco que sei sobre aquilo que faço - João Tordo
 
 Ensina-me a voar sobre os telhados - João Tordo
 
