@@ -34,6 +34,8 @@ Beyond Good and Evil - Friedrich Nietzsche
 
 The Death Of Ivan Ilyich - Leo Tolstoy
 
+To Kill a Mockingbird - Harper Lee
+
 Levantado do Chão - José Saramago
 
 Felicidade - João Tordo
