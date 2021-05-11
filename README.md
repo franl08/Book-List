@@ -42,8 +42,6 @@ Levantado do Chão - José Saramago
 
 Felicidade - João Tordo
 
-Biografia Involuntária dos Amantes - João Tordo
-
 Paraíso segundo Lars D. - João Tordo
 
 O deslumbre de Cecilia Fluss - João Tordo
@@ -87,6 +85,8 @@ O Ano Sabático - João Tordo
 A mulher que correu atrás do vento - João Tordo
 
 O Luto de Elias Gro - João Tordo
+
+Biografia Involuntária dos Amantes - João Tordo
 
 Cell - Stephen King
 
