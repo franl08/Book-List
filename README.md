@@ -14,9 +14,7 @@ The Unbearable Lightness of Being - Milan Kundera
 
 Pulp - Charles Bukowski
 
-The Great Gatsby - F. Scott Fitzgerald 
-
-Livro do Desassossego - Fernando Pessoa
+Felicidade - João Tordo
 
 ## Want to Read 😅
 
@@ -38,13 +36,17 @@ The Death Of Ivan Ilyich - Leo Tolstoy
 
 To Kill a Mockingbird - Harper Lee
 
+The Great Gatsby - F. Scott Fitzgerald 
+
 Levantado do Chão - José Saramago
 
-Felicidade - João Tordo
+Livro do Desassossego - Fernando Pessoa
 
 Paraíso segundo Lars D. - João Tordo
 
 O deslumbre de Cecilia Fluss - João Tordo
+
+Deus Pátria Família - Hugo Gonçalves
 
 ## Read 🙃
 
@@ -91,6 +93,8 @@ Biografia Involuntária dos Amantes - João Tordo
 Cell - Stephen King
 
 The Name of the Wind - Patrick Rothfuss
+
+The Wise Man's Fear (vol. 1) - Patrick Rothfuss
 
 Poesia Fragmentada - Leandro d'Freitas
 
