@@ -14,13 +14,11 @@ The Unbearable Lightness of Being - Milan Kundera
 
 Pulp - Charles Bukowski
 
-Felicidade - João Tordo
+Killing Commendatore (vol.2) - Haruki Murakami
 
 ## Want to Read 😅
 
 If This Is a Man - Primo Levi
-
-Killing Commendatore (vol.2) - Haruki Murakami
 
 Kafka on the Shore - Haruki Murakami 
 
@@ -89,6 +87,8 @@ A mulher que correu atrás do vento - João Tordo
 O Luto de Elias Gro - João Tordo
 
 Biografia Involuntária dos Amantes - João Tordo
+
+Felicidade - João Tordo
 
 Cell - Stephen King
 
